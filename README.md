@@ -1,1 +1,1 @@
-I am Md. Sahin Sarker. I want to study about face anti spoofing.
+I am Md. Sahin Sarker. I study and research on Monitoring Heart Rate using Smartphone Camera.
